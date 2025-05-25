@@ -1,0 +1,1 @@
+Giovane studioso nel tempio di [[Pelor]] a [[Thalmaris]], dalla chioma scompigliata e il volto perennemente nascosto dietro occhiali tondi.

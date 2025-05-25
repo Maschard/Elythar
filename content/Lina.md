@@ -1,0 +1,1 @@
+Guaritrice che bazzica a Nord-Est di [[Xanthia Rah]], Principalmente tra [[Thalmaris]], [[Orindal]], e [[Orveleth]], spesso si ferma alla locanda [[La Quercia Parlante]].

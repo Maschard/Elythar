@@ -1,0 +1,1 @@
+Druido che ha aiutato [[Petri Aracolle|Petri]] nella sua crescita personale come druido delle spore.

@@ -1,0 +1,1 @@
+Taverna appena fuori le mura di [[Thalmaris]].

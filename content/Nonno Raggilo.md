@@ -1,0 +1,1 @@
+Membro anziano del villaggio di [[Hafen]].

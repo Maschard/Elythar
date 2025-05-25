@@ -1,0 +1,1 @@
+Taverna al crocevia che collega [[Hafen]] con [[Thalmaris]] e [[Orindal]].
